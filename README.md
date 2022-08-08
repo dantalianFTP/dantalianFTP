@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dantalianFTP
-- 👀 I’m interested in tech,ustainible ag, homesteading, this one girl i know with the most remarkably sexy legs.
+- 👀 I’m interested in tech,sustainible ag, homesteading, this one girl i know with the most remarkably sexy legs.
 - 🌱 I’m currently learning basic webdevelopment, some js, python, 
 - 💞️ I’m looking to collaborate ......
 - 📫 How to reach me  dntl1n.e.email
